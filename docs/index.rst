@@ -1,4 +1,4 @@
-How to Install Norton Deluxe 360 Already Purchased from Retail or Online Store on Windows Device
+Help Desk: How to Activate & Install Norton 360 Deluxe in your in your device with 25 Digit key code
 ===============================================================================================
 If you've recently made a security investment by purchasing Norton Deluxe 360, either from a retail box or through an online store, you might be wondering how to proceed with setup on your PC. This guide explains how to **Install Norton Deluxe 360 Already Purchased** on your Windows device in the simplest possible way.
 
